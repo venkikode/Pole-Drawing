@@ -1,1 +1,1 @@
-# Pole-Drawing
+# Pole-Strengthening Drawing
